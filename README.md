@@ -7,7 +7,7 @@
 - 🤔 I’m looking for help with other content creators
 - 💬 Ask me about web development/python
 - 🥅 2020 Goals: be able to make full website 
-- 📫 How to reach me: 
+- 📫 How to reach me: [Twitter-@AmritPanta7](https://twitter.com/AmritPanta7)
 - 😄 Pronouns: Am-rit
 - ⚡ Fun fact: love to play cricket/football
 -->
