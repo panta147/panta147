@@ -7,7 +7,7 @@
 - 🤔 I’m looking for help with other content creators and developer.
 - 💬 Ask me about web development/python and React.
 - 🥅 2022 Goals: To Become FullStack Developer.
--  📫 How to reach me:(https://www.amritpanta.com.np/)
+-  📫 How to reach me:(amritpanta51@gmail.com)
 - 😄 Pronouns: Am-rit
 - ⚡ Fun fact: love to play cricket/football
 -->
