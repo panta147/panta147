@@ -19,7 +19,7 @@
 
 ## 📫 How to Reach Me  
 - **Email**: [amritpanta77@gmail.com](mailto:amritpanta77@gmail.com)  
-- **GitHub**: [Your GitHub Profile](https://github.com/your-username)  
+- **GitHub**: [Your GitHub Profile](https://github.com/panta147)  
 
 ---
 
